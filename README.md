@@ -1,16 +1,17 @@
-### Hi there 👋
+#OIII!bem vido ao meu perfil🥰😘
 
-<!--
-**kanandraassis/kanandraassis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é kanandra assis
+tenho 14 anos
 
-Here are some ideas to get you started:
+-estou cursando o alura
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-estarei colocando meus projetos aqui
+-espero que gostem
+
+
+
+- **SE NÃO GOSTOU É SO SAIR😘BEIJOS E ABRAÇOS🙄
+
+![](https://media.tenor.com/8rBbaJy4U6AAAAAd/very-nice-wow.gif)
+
+https://media.tenor.com/8rBbaJy4U6AAAAAd/very-nice-wow.gif
